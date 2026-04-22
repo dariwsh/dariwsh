@@ -58,7 +58,7 @@ I’m always learning new technologies and improving my skills step by step 🚀
 ---
 
 📫 **Connect With Me**
-- LinkedIn: https://linkedin.com/in/YOUR-LINKEDIN
+- LinkedIn: [https://linkedin.com/in/YOUR-LINKEDIN](https://www.linkedin.com/in/ahmed-darwish-33b752330/)
 
 
 ⭐️ Always learning. Always improving.
